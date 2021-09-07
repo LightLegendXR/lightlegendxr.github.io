@@ -4,6 +4,8 @@ Bio:
 A 18 year old, in university. Comes from Cairo, Egypt. Good At Nothing Person. I'm super offense, childish, retarded, and I'm lazy, I hate DMs.
 
 My devices:
+
+
 Galaxy A21s | SM-A217F/DS
 
 
