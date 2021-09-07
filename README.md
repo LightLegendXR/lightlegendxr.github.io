@@ -9,7 +9,10 @@ Galaxy A21s | SM-A217F/DS
 
 Galaxy M11 | SM-M115F
 
+
 Links:
+
+
 Main Telegram account: [@LightLegendXR](t.me/lightlegendxr)
 
 
@@ -22,7 +25,7 @@ My main Telegram, general chat group: [@mi11litechat](t.me/mi11litechat)
 Where I'm most active at (Telegram): [@LLXRChat](t.me/llxrchat)
 
 
-GitHub account: github.com/LightLegendXR
+GitHub account: [github.com/LightLegendXR](github.com/LightLegendXR)
 
 
-Website: tinyurl.com/henlogayy
+Website: [tinyurl.com/henlogayy](tinyurl.com/henlogayy)
